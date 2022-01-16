@@ -1,2 +1,2 @@
-# Assignment_2_Temirlan_Arlan_Zhanibek
+# Assign_
 Temirlan Meiramkhanov, Arlan Manap, Zhanibek Meiramkhan
